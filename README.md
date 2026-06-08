@@ -2,4 +2,4 @@
 - Bùi Tấn Phát
 - Khổng Văn Tám
 - Phạm Minh Hiếu
-- Phạm Tăng Hoà
+- Phạm Tăng Hoàng
